@@ -15,5 +15,4 @@ No momento, gosto de jogar Honkai: Star Rail, Honkai Impact 3rd e Wuthering Wave
 ![](https://media1.tenor.com/m/Mu5jefj-l_AAAAAd/wuthering-waves-wuwa.gif)
 
 Também, gosto de ouvir música, não tendo um estilo especifico como favorito, mas atualmente gosto de ouvir Vocaloid (um estilo musical) e Ado (uma cantora)
-Além disso, também gosto e admiro furries, fursuits e cosplays em um geral
-![](https://tenor.com/pt-BR/view/gintan-gintan-fursuit-dance-gintan-fursuit-white-tiger-white-tiger-fursuit-gif-14693173466165161454)
+Além disso, também gosto e admiro furries, fursuits e cosplays em um geral.
